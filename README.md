@@ -1,6 +1,7 @@
 # [Welcome to the qpi](https://github.com/barionleg/qpi/wiki/Home/)
 
-<img width="420" height="400" alt="qpi_⚻♬" src="https://github.com/user-attachments/assets/311d062d-47f7-4573-ad39-e6616e3a5d6b" />
+<img width="420" height="400" alt="qpi_⚻♬" src="https://github.com/user-attachments/assets/ac728739-e44b-473a-9b62-d871778ca487" />
+
 
 
 元Ä₽i©ი  20251118_22:36
