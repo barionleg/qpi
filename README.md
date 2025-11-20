@@ -12,6 +12,68 @@
 
 3,142857142857143
 
+დღეს 20251120 
+
+___
+
+# hpi_||_qpi
+___
+
+[hpi_☰_qpi](https://github.com/aibolem/00/wiki/hpi_%7C%7C_qpi/)
+
+# ♭♬ 
+
+ჱπ or qpi or ⚻π
+
+ harmonic π
+
+Q ჱი ბ.
+
+ Qლი ♭.ÅRdavelid3e
+
+```
+                                                                      🎹              🎹  
+                                                                      88              108
+                                                                       |               |
+
+```                                                                                   
+
+![RAdIAN ₽](https://raw.githubusercontent.com/barionleg/AraratMorse/main/AraratMorse/wwwroot/img/Pi-unrolled-720.gif)
+
+2024 წლის 5 მაისი იყო, როდესაც პირველად მივიღე 3,142857142857143 პი ანუ სადღეისოდ ჰარმონიული პი, რომელიც ქვანტური კვანტური გათვლებისთვის არის და თქვენი დახმარების საშუალებით უკეთ აღუწეროდ მოსახლეობას მისი არსებითი მნიშვნელობა უზუსტესს მეცნიერებაში, სადაც კვანტური მანძილებისათვის ძველი ანუ როგორც მე ავღნიშნავ "тОПоРный Пи", ვინაიდან ის კარგი იყო ბორბალის შემოწირულობისა თუ ფართობის განსასაძღვრავად.
+
+BASEd on 88 P8IAHO (PiANOTATION) & 108 РОЯЛЬ (POJAL♭ grand 🎹 piano)
+
+СКООРОВнიк u'CiTY's 🍋 
+
+Sience [1932](https://ka.wikipedia.org/wiki/1932) Ebernavakerades ძroჰhundeი (ძროხჰუნდი [სასოფლო სამეურნეო ვინსტიტუტი](https://ka.wikipedia.org/wiki/საქართველოს_აგრარული_უნივერსიტეტი), [სახელმწიფო პროლიტექნიკური ინსტიტუტი = საქართველოს ვინდოუსტრიული ვინსტიტუტი](https://ka.wikipedia.org/wiki/საქართველოს_ტექნიკური_უნივერსიტეტი), [პრედვინსტიტუტი](https://ka.wikipedia.org/wiki/თბილისის_პედაგოგიური_ინსტიტუტი) 
+
+[ვµნიფერფსიტების სია](https://ka.wikipedia.org/wiki/კატეგორია:უნივერსიტეტები_ანბანის_მიხედვით)
+
+ჩემი ვოჯახის dNA AИb ბაზირებული მსოფლიო სასწავლებლების კვადები lokalt: 
+
+<img width="182" height="383" alt="melodia_aibolem_RNA_იЛøტ_STARBÅRgC" src="https://github.com/user-attachments/assets/781bb52a-fd74-4333-8261-688cf60fa63c" />
+
+
+元Ä₽i©ი 20251120 ხუთშაბათი (ხუთშაფათი)
+
+
+⚠ OBS! Det som stör nedre jäller ej övre themman; men är bra påmminnellset för mig om det 🌌 Univærsiellt betydelser av det wissenschaftliga order, vilka ske lässas frön bege sidan och ske ha menningen också från bege sidan; vid respekt av fader & moder grundarna och symboler $ (de); ₽ (Re) osv; vilka är del av SPECTRunner.
+
+Ångströmm Åndströmm Ändströmm 
+
+ჱი ბ. är mitt pseudohimmet vid detta ARTIKLETS BRANCHETT harmoniskt Pi & Ärendet. 
+
+☸ dbuhЯR ЯRнიДВ JÄRNdb (JÄRNJL JÄRNЖД) Hi Vittese d'BMW იKÅÄЯRноßÆRIㅎ (karrosseri) see СКООРОВнიк
+
+![Minutensprunguhr_animiert](https://github.com/user-attachments/assets/858a11c7-b2d7-42a4-b27f-54ba209f556f)
+
+___
+___
+
+
+იმ დღეს დაწერილი
+
 wheels Pi топорный Пи ჩაანაცვლებს ჼბოჩკა (ჼBOЧКА) = "Q" უანტური ანუ QuAnT (ТИАµQ) ⚻ "პი" ri რი ... რაიდაერმონები მოდიან ... 
 
 ტატივს ვცემთ რა იკრილიცისა და ეკოჰომიკის & Physic Chemie enad ძialects Pycckuü რომელიც ვეფხითხაბოსელი ანუ ვეფხისტყაოსნის თუ გვჯერავს, ვეფხის სამშობლო და ჭაღარა სიბაერიაც სწორედ თოვლებშია ... გაუ? 
