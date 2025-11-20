@@ -16,10 +16,10 @@
 
 ___
 
-# hpi_||_qpi
+# hpi_||_qpi  [hpi_☰_qpi](https://github.com/aibolem/00/wiki/hpi_%7C%7C_qpi/)
+
 ___
 
-[hpi_☰_qpi](https://github.com/aibolem/00/wiki/hpi_%7C%7C_qpi/)
 
 # ♭♬ 
 
