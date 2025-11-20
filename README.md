@@ -29,14 +29,14 @@ ___
 
 Q ჱი ბ.
 
- Qლი ♭.ÅRdavelid3e (364+NewJÅResEwE, 13 MooNS CÄLENDBÅRµон)
+ Qლი ♭.ÅRdavelid3e (364+NewJÅResEwE, 13x8 dAY CÄLENDBÅRµმooн)
 
 ```
-      88/28=3.142857142857143 Quantclick Pi             88:e key of Piano Pi     108:e key Whole 4x4 Wheel
+      88/28 = [3.142857142857143 Quantclick Pi](https://barionleg.github.io/qpi/index.html)             88:e key of Piano Pi     108:e key Whole 4x4 Wheel
                                                                       🎹              🎹  
                                                                       88              108
                                                                        |               |
-326 & Beyond P.TbIiCSA <reversalt> ASCII dT Periodic .:჻
+[326 & Beyond P.TbIiCSA <reversalt> ASCII dT Periodic .:჻](https://db-comrubo-c-sa-ch-union-oqtavae.gitbook.io/326-and-beyond/)
 ```                                                                                   
 
 ![RAdIAN ₽](https://raw.githubusercontent.com/barionleg/AraratMorse/main/AraratMorse/wwwroot/img/Pi-unrolled-720.gif)
