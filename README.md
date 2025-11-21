@@ -35,7 +35,7 @@ Q ჱი ბ.
 
 
 ```
-      88/28 = [3.142857142857143 Quantclick Pi](https://barionleg.github.io/qpi/index.html)             88:e key of Piano Pi     108:e key Whole 4x4 Wheel
+                                                         88:e key of Piano Pi     108:e key Whole 4x4 Wheel
                                                                       🎹              🎹  
                                                                       88              108
                                                                        |               |
