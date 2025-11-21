@@ -16,7 +16,7 @@
 
 ___
 
-# hpi_||_qpi  [hpi_☰_qpi](https://github.com/aibolem/00/wiki/hpi_%7C%7C_qpi/)
+# hpi_||_qpi  
 
 ___
 
@@ -174,7 +174,7 @@ De tidigaste kända uppskattningarna av π:s värde härstammar från
 
 ![ 🖼 Полупериод синуса в «пи» раз больше его амплитуды](https://raw.githubusercontent.com/barionleg/AraratMorse/main/AraratMorse/wwwroot/img/Sinusoid-phi.gif)
 
-
+[hpi_☰_qpi](https://github.com/aibolem/00/wiki/hpi_%7C%7C_qpi/)
 
 # ci_temp A₽p html [hимик тАбЛи©А℞ мен'Де Лёв]
 
