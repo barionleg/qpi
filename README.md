@@ -45,7 +45,7 @@ Q ჱი ბ.
 
 2024 წლის 5 მაისი იყო, როდესაც პირველად მივიღე 3,142857142857143 პი ანუ სადღეისოდ ჰარმონიული პი, რომელიც ქვანტური კვანტური გათვლებისთვის არის და თქვენი დახმარების საშუალებით უკეთ აღუწეროდ მოსახლეობას მისი არსებითი მნიშვნელობა უზუსტესს მეცნიერებაში, სადაც კვანტური მანძილებისათვის ძველი ანუ როგორც მე ავღნიშნავ "тОПоРный Пи", ვინაიდან ის კარგი იყო ბორბალის შემოწირულობისა თუ ფართობის განსასაძღვრავად.
 
-<img width="420" height="400" alt="qpi_⚻♬" src="https://raw.githubusercontent.com/barionleg/qpi/refs/heads/gh-pages/BB_88_108_BOI.png">
+<img width="420" height="400" alt="qpi_⚻♬" src="https://raw.githubusercontent.com/barionleg/qpi/refs/heads/gh-pages/harmoniclick_qpi.gif">
 
 BASEd on 88 P8IAHO (PiANOTATION) & 108 РОЯЛЬ (POJAL♭ grand 🎹 piano)
 
