@@ -1,5 +1,7 @@
 # [Welcome to the qpi](https://github.com/barionleg/qpi/wiki/Home/)
 
+[qpi index.html](https://barionleg.github.io/qpi/index.html)
+
 <img width="420" height="400" alt="qpi_⚻♬" src="https://github.com/user-attachments/assets/ac728739-e44b-473a-9b62-d871778ca487" />
 
 
