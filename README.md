@@ -47,6 +47,11 @@ Q ჱი ბ.
 
 <img width="720" height="228" alt="image" src="https://raw.githubusercontent.com/barionleg/qpi/refs/heads/gh-pages/harmoniclick_qpi.gif" />
 
+ყველა ახლობელ მეგობრებსა და ნათესავებს მადლობა, აგრეთვე პარიზისა და ევროპის მაცხოვრებლებს, მათ შორის განსაკუთრებული მადლობა თანადგომისათვისა და სხვადასხვა მასალის მოძიებისათვის ნოდარი ივანიაშვილს (საგარეჯოელ წივილას, ჩემს კარგ პარიზელ მეზობელსა და მეგობარს)!
+
+Irakli Bardavelid3e
+
+PARIS 20251210 16:51
 
 BASEd on 88 P8IAHO (PiANOTATION) & 108 РОЯЛЬ (POJAL♭ grand 🎹 piano)
 
