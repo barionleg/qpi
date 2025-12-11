@@ -1,5 +1,7 @@
 # [Welcome to the qpi](https://github.com/barionleg/qpi/wiki/Home/)
 
+[QµAHT_Pi_Qronology at 00 side menus](https://github.com/aibolem/00/wiki/%23-ჼОтe©ЛÅ-ჼÅTESLი-&&-NEW-Piჼ჻)
+
 [qpi index.html](https://barionleg.github.io/qpi/index.html)
 
 <img width="420" height="400" alt="qpi_⚻♬" src="https://github.com/user-attachments/assets/ac728739-e44b-473a-9b62-d871778ca487" />
@@ -31,7 +33,9 @@ ___
 
 Q ჱი ბ.
 
- Qლი ♭.ÅRdavelid3e (364+NewJÅResEwE, 13x8 dAY CÄLENDBÅRµმooн)
+ ჼøчкА ლი ♭.ÅRdavelid3e 
+ 
+ (364+новÅ₽$EwE (Nytt ÅRs AftoИ 13x28 dAY CÄLENDBÅRµმooн)
 
  [326 & Beyond P.TbIiCSA <reversalt> ASCII dT Periodic .:჻](https://db-comrubo-c-sa-ch-union-oqtavae.gitbook.io/326-and-beyond/)
 
@@ -49,7 +53,7 @@ Q ჱი ბ.
 
 <img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/d8f8f7a8-9f93-4517-aa9b-b5811c4b0f92" />
 
-ლინკი ნამცხვრების და დურგლის პის შიკიპედიატრისა:  https://en.wikipedia.org/wiki/Pi
+ლინკი ნამცხვრების და დურგლის პის შიკიპედიატრისა шikiPeძiARTZ:  https://en.wikipedia.org/wiki/Pi
 
 ___
 
