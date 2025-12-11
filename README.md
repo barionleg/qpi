@@ -1,8 +1,10 @@
-[### 元 3,142857142857143](https://barionleg.github.io/qpi/index.html)
+[### 元♭ ☧ ♬ 3,142857142857143](https://barionleg.github.io/qpi/index.html)
 
-# ♭♬ NOTAPi iRAтØN нÅтØØтAИ 
+NO & но är NORd н²о☧g symboler och attached till mitt gen d'BARdg 
 
-&&.:჻₽µ 3,142857142857143 µ₽.
+#### ♭☧♬ NØтAPi iRAтØN нÅтØØтAИ 
+
+# &&.:჻₽µ 3,142857142857143 µ₽.
 
 ___
 
@@ -10,13 +12,11 @@ ___
 
 ___
 
-ჱπ or qpi or ⚻π
-
-harmonic π
-
-Q ჱი ბ.
+ჱπ or qpi or ⚻π harmonic π Q ჱი ბ.
 
  ჼøчкА ლი ♭.ÅRdavelid3e э 3Д 🕹 Лёв АДrAв (e 3d I Lev A'dRAW)
+
+ # სადაც Д Physic [☧](https://github.com/barionleg/kodbok/wiki) Chemie ©
  
 
  [326 & Beyond P.TbIiCSA <reversalt> ASCII dT Periodic .:჻](https://db-comrubo-c-sa-ch-union-oqtavae.gitbook.io/326-and-beyond/)
