@@ -1,14 +1,17 @@
-# [Welcome to the qpi](https://github.com/barionleg/qpi/wiki/Home/)
+[### 元 3,142857142857143](https://barionleg.github.io/qpi/index.html)
 
-[QµAHT_Pi_Qronology at 00 side menus](https://github.com/aibolem/00/wiki/%23-ჼОтe©ЛÅ-ჼÅTESLი-&&-NEW-Piჼ჻)
 
 [qpi index.html](https://barionleg.github.io/qpi/index.html)
 
 <img width="420" height="400" alt="qpi_⚻♬" src="https://github.com/user-attachments/assets/ac728739-e44b-473a-9b62-d871778ca487" />
 
+# 3,142857142857143 
+
+<img width="720" height="228" alt="image" src="https://raw.githubusercontent.com/barionleg/qpi/refs/heads/gh-pages/harmoniclick_qpi.gif" />
 
 
-元Ä₽i©ი  20251118_22:36
+
+元ARiS  20251211 🕠 Clock 15:00
 
 元ARISiharmonical_Pi ⚻ 
 
@@ -49,6 +52,8 @@ Q ჱი ბ.
 
 ![RAdIAN ₽](https://raw.githubusercontent.com/barionleg/AraratMorse/main/AraratMorse/wwwroot/img/Pi-unrolled-720.gif)
 
+[QµAHT_Pi_Qronology at 00 side menus](https://github.com/aibolem/00/wiki/%23-ჼОтe©ЛÅ-ჼÅTESLი-&&-NEW-Piჼ჻)
+
 2024 წლის 5 მაისი იყო, როდესაც პირველად მივიღე 3,142857142857143 პი ანუ სადღეისოდ ჰარმონიული პი, რომელიც ქვანტური კვანტური გათვლებისთვის არის და თქვენი დახმარების საშუალებით უკეთ აღუწეროდ მოსახლეობას მისი არსებითი მნიშვნელობა უზუსტესს მეცნიერებაში, სადაც კვანტური მანძილებისათვის ძველი ანუ როგორც მე ავღნიშნავ "тОПоРный Пи" 3.1415926535897932384626433..., ვინაიდან ის  კარგი იყო ბორბალის შემოწირულობისა თუ ფართობის განსასაძღვრავად და მას მძიმის შემდეგ უამრავი დეციმალური მნიშვნელი გააჩნია, რომლითაც დამეთანხმებით კვანტური სიდიდეების განსაზღვრა უბრალოდ გაურკვევლობამდე მიიყვანს მსურველს. თუმცა ნამცხვრების გასაფორმებლად იდეალურია ...
 
 <img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/d8f8f7a8-9f93-4517-aa9b-b5811c4b0f92" />
@@ -66,9 +71,7 @@ CARтвеЛიПи ეწოდება. არ დაგავიწყდე�
 
 [TACK! (გმადლობთ!)](https://github.com/barionleg/saami-flagg-qpi/wiki/Home)
 
-# TAdAh ... 3,142857142857143 
 
-<img width="720" height="228" alt="image" src="https://raw.githubusercontent.com/barionleg/qpi/refs/heads/gh-pages/harmoniclick_qpi.gif" />
 
   ყველა ახლობელ მეგობრებსა და ნათესავებს მადლობა, კლასელებსა თუ კოლასსნიცების განსაკუთრებით ისინი ვინც გვაკითხავენ ხოლმე. აგრეთვე მადლობა (MERCI MEPiSI) პარიზისა და ევროპის სხვა ქალაქ სოფლების მაცხოვრებლებს, ე.წ. მეცნიერულ ხელოვნების ტრაფეების დაბრუნებისათვის ჩემს რეაბილიტირებულ ვოჯახს, (Gurjistan_ში ექიმთა ცნობილი რეპრესიების შემდეგ, სადაც ჩემი გრანდპარანტი პროფესიით გინეკოლოგი, პედიატრი, ვეტერინარი თუ სხვა, რომელთაც ჯერ არ დავასახელებ) მათ შორის განსაკუთრებული მადლობა თანადგომისათვისა და სხვადასხვა მეცნიერული მასალის მოძიებისათვის ნოდარი ივანიაშვილს (საგარეჯოელ წივილას, ჩემს კარგ პარიზელ მეზობელსა და მეგობარს)!
 
